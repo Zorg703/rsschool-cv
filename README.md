@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Zorg703.github.io/rsschool-cv/cv
